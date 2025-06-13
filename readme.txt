@@ -1,0 +1,1 @@
+Se puede modificar los roles a tu gusto. Gracias por usar, humilde aportacion para remplazar programas de pago.
